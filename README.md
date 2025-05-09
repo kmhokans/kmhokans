@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @kmhokans
-- 👀 I’m interested in ...
+- 👀 I’m interested in learning 
 - 🌱 I’m currently learning cybersecurity management and policy
 - 💞️ I’m looking to collaborate on anything that will help me learn more and understand this digital world
 - 📫 How to reach me.. On here
